@@ -1,6 +1,6 @@
 # Rochester Cathedral: early photographs 
 
-![](IMG_1719.IMG)
+![](IMG_1719.jpeg)
 
 Rochester Cathedral organ Pre 1876 
 
